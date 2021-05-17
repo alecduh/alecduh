@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alecduh
 - 👀 I’m interested in my phone -_-
-- 🌱 I’m currently learning notj=hing
-- 💞️ I’m looking to collaborate on nothing
+- 🌱 I’m currently learning nothing
+- - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me discord facebook or email me -_- not telling my phone number
 
 <!---
